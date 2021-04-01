@@ -33,7 +33,7 @@ Good-to-Great、Green Sustainability
 Renovation 创新精神
 Ownership 认真、负责
 Willing-to-learn 善于学习
-Teamwork 合作
-Honesty 诚信
+
 [![cVGa7V.png](https://z3.ax1x.com/2021/04/01/cVGa7V.png)](https://imgtu.com/i/cVGa7V)
 
+[Exchange后台登陆地址](https://intlemail.sinochem.com:4433/index.html)
