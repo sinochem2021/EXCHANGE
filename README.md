@@ -22,3 +22,18 @@
 
 股东大会下设董事会和监事会，授权高级经理负责经营，形成既有效制衡、又协调一致的公司治理机制。股东大会、董事会及各专门委员会、监事会及各专门委员会、高级管理层等权责明确、规范运作，公司治理有效性持续提升。
 [![cVGCTK.png](https://z3.ax1x.com/2021/04/01/cVGCTK.png)](https://imgtu.com/i/cVGCTK)
+
+## 企业文化
+
+中化国际注重企业文化建设，通过文化赋能，激发员工的使命感和归属感，在“科学至上”核心价值理念的指引下，构建“员工和企业共享成长”的企业文化。
+
+“GROWTH”员工与企业共享成长 
+Good-to-Great、Green Sustainability
+追求卓越、绿色持续
+Renovation 创新精神
+Ownership 认真、负责
+Willing-to-learn 善于学习
+Teamwork 合作
+Honesty 诚信
+[![cVGa7V.png](https://z3.ax1x.com/2021/04/01/cVGa7V.png)](https://imgtu.com/i/cVGa7V)
+
